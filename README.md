@@ -2,6 +2,6 @@
 
 ## Members:
 - Jansen Baloaloa
-- *Insert name here*
+- Domnique M Acosta
 - *Insert name here*
 - *Insert name here*
