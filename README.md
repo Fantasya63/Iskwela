@@ -3,5 +3,5 @@
 ## Members:
 - Jansen Baloaloa
 - Domnique M Acosta
-- *Insert name here*
+- Jennylyn Silvano
 - *Insert name here*
