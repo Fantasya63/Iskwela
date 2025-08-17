@@ -3,5 +3,5 @@
 ## Members:
 - Jansen Baloaloa
 - *Insert name here*
-- *Insert name here*
+- Jennylyn Silvano
 - *Insert name here*
